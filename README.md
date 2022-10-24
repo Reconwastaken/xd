@@ -1,2 +1,0 @@
-# xdgamingchairs
-XD | Gaming Chairs
